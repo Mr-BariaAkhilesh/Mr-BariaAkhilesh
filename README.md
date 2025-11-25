@@ -1,4 +1,4 @@
-## Hi there MR:-A.K 👋
+## Hi  MR:-A.K 👋
 
 <!--
 **Mr-BariaAkhilesh/Mr-BariaAkhilesh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
